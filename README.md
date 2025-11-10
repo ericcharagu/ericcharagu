@@ -1,4 +1,4 @@
-i- 👋 Hi, I’m @ericcharagu
+👋 Hi, I’m @ericcharagu
 - 👀 I’m a AI applications developer looking to build sustainable products
 - 
 - 📫 Email: charagumacharia@gmail.com
